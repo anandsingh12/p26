@@ -1,0 +1,13 @@
+For Making Egg Chilli 
+- 2 Tbsp Garlic (Minced)
+- 1/2 Tbsp Ginger (Minced)
+- 3 Green Chillies (Slit)
+- 2 Bulbs Spring Onions (white)
+- 1 Capsicum (Diced)
+- 3/4 Tsp Black Pepper
+- 1 Tbsp Soy Sauce 
+- 1/2 Tbsp Red Chilli Sauce
+- 1/4 Cup Water
+- 1 Tbsp Corn Flour + Water
+- Egg Fritters
+- 1/4 Tsp White Vinegar
